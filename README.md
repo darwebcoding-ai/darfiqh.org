@@ -1,2 +1,0 @@
-# darfiqh.org
-darfiqh.org
